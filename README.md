@@ -1,7 +1,7 @@
 ***Topico 1:***
 ***Nascimento:***
 
-Segundo os evangelhos de Mateus e Lucas, Jesus nasceu em Belém, cidade do Rei Davi.  José seu pai, era descendente do Rei Davi, tabem tem sua mãe, Maria. Erodes mandou 
+Segundo os evangelhos de Mateus e Lucas, Jesus nasceu em Belém, cidade do Rei Davi.  José seu pai, era descendente do Rei Davi, tambem tem sua mãe, Maria. Erodes mandou 
 
 ***Infancia:***
 
