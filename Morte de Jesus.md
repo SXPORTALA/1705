@@ -5,7 +5,7 @@ Segundo os evangelhos de Mateus e Lucas, Jesus nasceu em Belém, cidade do Rei D
 
 ***Infancia:***
 
-**O Novo Testamento contém 27 livros, 7 956 versículos e 138 020 palavras. E uma única referência à juventude de Jesus. O Evangelho de Lucas nos conta que, aos 12 anos, ele viajou com os pais de Nazaré a Jerusalém para celebrar o Pessach, a Páscoa judaica**.
+**O Novo Testamento contém 27 livros, 7 956 versículos e 138 020 palavras. E uma única referência à juventude de Jesus. O Evangelho de Lucas nos conta que, aos 12 anos, ele viajou com os pais de Nazaré a Jerusalém para celebrar o Pessach, a Páscoa judaica, Jesus era como uma criança normal, tanto e que quando jesus "despareceu" seus pais ficaram muito preucupados ja jesus agiu na inocencia nao tinha nem noçao do que seus pais estavam passando**.
 
 
 ***fase Adulta:***
